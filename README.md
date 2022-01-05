@@ -11,5 +11,7 @@
 [Forum DE](https://www.funkbasis.de/viewtopic.php?f=2&t=51626) |
 [Forum EN](https://forums.radioreference.com/threads/qyt-cb58-or-president-randy.434252/)
 
+Видеобзоры: [#1](https://youtu.be/dGnGuMRl_6Q) | [#2RU](https://youtu.be/Y9ZeYzf8ef4) | [#3](https://youtu.be/yEatQBV6gio)
+
 <img src="QYT CB-58.jpg"/>
 <img src="сетка 5.jpg"/>
