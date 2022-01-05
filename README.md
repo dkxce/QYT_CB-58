@@ -11,3 +11,4 @@
 [Forum EN](https://forums.radioreference.com/threads/qyt-cb58-or-president-randy.434252/)
 
 <img src="QYT CB-58.jpg"/>
+<img src="сетка 5.jpg"/>
